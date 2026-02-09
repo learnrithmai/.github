@@ -1,4 +1,4 @@
-# Welcome to LearnRithmAI! 🚀
+# Welcome to Learnrithm AI! 🚀
 
 ## About Us
 
